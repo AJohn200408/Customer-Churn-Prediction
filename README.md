@@ -1,1 +1,1 @@
-Work in progress (30%)
+Work in progress (60%)
